@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MatthewInglis
+- 👀 I’m interested in Computing, Gaming and Fitness
+- 🌱 I’m currently undergoing my HNC in Web Development with Edinburgh College (Milton Road Campus)
+- 📫 How to reach me: Email - matthewcinglis@gmail.com    Phone Number - 07391141202
+- 😄 Pronouns: He/ Him
+- ⚡ Fun fact: My first gaming console was a nintendo DS and my faveroute game was Lego Star Wars: The Complete Saga
